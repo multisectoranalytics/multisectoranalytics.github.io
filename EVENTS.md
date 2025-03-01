@@ -8,7 +8,7 @@
 ### EXPECTED OUTCOMES: 
 - Team building; research planning 
 ### TENTATIVE WORKSHOP AGENDA (9AM to 4PM)
-- Presentation by invited speakers from community organizations
+- Presentation by invited speakers
 - Stakeholder interview summary
 - Poster presentations from researchers and students + lunch
 - Round Table 1- application themes: Immigrant/refugee population with high health and social burden; Maternal and child health in marginalized populations; Sexual and reproductive health in  marginalized populations
