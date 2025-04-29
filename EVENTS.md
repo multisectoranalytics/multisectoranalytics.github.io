@@ -11,11 +11,7 @@
 - Presentation by invited speakers
 - Stakeholder interview summary
 - Poster presentations from researchers and students + lunch
-- Round Table 1- application themes: 
-- Round Table 2- research themes (TBD)
-
-### LAST DAY TO REGISTER (no registration fee): 
-- March 2nd, 2025
+- Round table discussions
 
 ### [WORKSHOP REGISTRATION LINK](https://forms.gle/rW8ScRudMwXXAH719)
 
